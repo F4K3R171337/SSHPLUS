@@ -1,4 +1,4 @@
-# 🤖 SSHPLUS-MANAGER 
+# SUKUNA PLUS 
 # BY SUKUNA
 
 
